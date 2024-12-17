@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/11a79d95-918b-441a-8cdf-b09e050c4f9a)## Hi there, I'm Alexander.👋
+## Hi there, I'm Alexander.👋
    
 ## Github Stats
 
